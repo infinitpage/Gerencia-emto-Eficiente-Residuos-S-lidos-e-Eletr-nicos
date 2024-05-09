@@ -1,0 +1,1 @@
+# Gerencia-emto-Eficiente-Residuos-S-lidos-e-Eletr-nicos
